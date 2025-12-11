@@ -1,0 +1,2 @@
+# SIGED.certificado-secundaria-autenticacion-MACJ770114HSLCRS15
+MACJ770114HSLCRS15
